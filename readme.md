@@ -1,7 +1,11 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
-2023-01-07:
+2023-01-07: positive super-stimuli
+
+The modern day super-stimuli, as mentioned in the previous post, has, I feel, largely sapped life of transcendental moments, and that most precious trust in one's own impulses to guide the way. We can combat this by creating super-stimuli which pull us in the directions we wish to go. Running while high may just be the beginning of something truly great. Maybe one day, we'll all abandon our distractions, and that pervasive boredom gnawing away at our lives from the inside. The listless blankfaced, deadeyed, disgusted scrolling and refreshing of today will end, and we will wake as if from a dream. We will go outside, we will go to church, we will read more books, we will embark on difficult, meaningful work. And it will not be by force. We will be guided by the beauty of our weapons.
+
+2023-01-07: **stoners, look no further**
 
 Here's all I want to accomplish as a cultural programmer:
 - Inpsire someone to build a dating site for the high school (very specific goals with that, won't say them right now)
@@ -24,7 +28,7 @@ The thing about iron curtains is that they are heavy. They cannot be moved so ea
 
 So. **Hit that blunt, and get outside**, won't you please?
 
-2023-01-07:
+2023-01-07: hello world
 
 If anything, I want this to be an experiment in cultural programming. I don't want to know how many people are reading it, and I don't want to alter anything to appease an abstract audience. I do want to take some the mental models I've made to interpret the world, and install them on your brain. I want to try to cast spells and talk to the spirits that live on the mimetic substrate. Computer programming, as Hal Abelson and Gerald Sussman brilliantly put it in their introductory computer science textbook, is the art of instructing magical spirits on a higher plane of existence to do your bidding. With enough computational power available, good programmers are gods. Writing is the same, but with the more ambigous world of distributed thought – culture. Ours is the substrate of mimesis, and we have direct write access into the souls of humans. Slick words can kill a man: show him the world anew through the right nihilistic lens, and he will die by his own hand. Words can imbue meaning into what is just sound and fury, and keep alive those living lives not worth living. They say this skill is innate, that you can't get better. Maybe they're right. Maybe I don't have the talent to pull this off. Maybe I do. Maybe I'm too autistic to do it anyway. Regardless, I'm going to try. 
 
