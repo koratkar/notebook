@@ -7,7 +7,7 @@ There are some people who are endlessly fascinating. Behind their eyes and betwe
 
 I want to resist classifying this kind of person, because fitting into a category is precisely what they best fail at, but this is generally what I find makes someone *interesting*. 
 
-Surrounding you are walls. Holding your head is a clamp, stifling attempts to really see. The world you live in often lies to you. I think liberation is finding ways of repurposing the features of your environment for new functions, unintended by its designers – be they intelligent, nature, or social forces. See that the walls and clamp aren’t solid objects, but that they are entirely notional. Walk through them! Betray away your category, your unchosen identity. This is your world. It is an open world game much larger than the what the eye implies. Play it your way.
+Surrounding you are walls. Holding your head is a clamp, stifling attempts to really see. The world you live in often lies to you. I think liberation is finding ways of repurposing the features of your environment for new functions, ones unintended by its designers – be they intelligent, nature, or social forces. See that the walls and clamp aren’t solid objects, but that they are entirely notional. Walk through them! Betray away your category, your unchosen identity. This is your world. It is an open world game much larger than the what the eye implies. Play it your way.
 
 2023-01-08: against spurious sounding claims about things that vaguely correlate
 
