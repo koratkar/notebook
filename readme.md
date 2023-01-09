@@ -1,6 +1,16 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-08: flat earthers
+
+From Sam Kriss's [Neil deGrasse Tyson hit piece](https://samkriss.com/2016/03/14/neil-degrasse-tyson-pedantry-in-space/):
+
+> But all this is pedantry, the perverse insistence on how the world is, the total apathy to how it could be different. Pedantry could be broadly defined as a hostility to metaphor, the demand that every object stand for itself and nothing else, that words function in the same way as numbers. Which is why it’s pointless to criticise Neil deGrasse Tyson or the I Fucking Love Scientists for being the pompous, self-important, and utterly cretinous pedants that they are: it’s just falling back into their own dismal, boring logic, insisting that a thing is what it is rather than something else.
+
+Often teachers will only show you a means of symbol manipulation with some definitions: it appears that's all that happens in calculus classes. If you ask your instructor how something works, they will often tell you they don't know. You are told a set of things is supposedly true, and handed a set of instructions that supposedly work. If you believe those things, and painfully contort your brain to work with them (rather than look at them from new directions, and mold them into the perfect shape for understanding to strike you – an approach that may not always result in high scores), they will pin many bright ribbons on your lapel. 
+
+Flat earthers challenge this paradigm. They only accept what they see with their own eyes. They are the last champions of the truth, the last brave souls willing to leave a paradise of pure abstraction and aribtrary facts tagged true by Smart People to enter the triple inferno of Not Knowing, Not Trusting, and Uncertainty. We may never know, and with this crippling fact we must continue! *Wir müssen wissen. Wir werden wissen.*
+
 2023-01-08: improv routine
 
 "Now we are going to take suggestions from the audience. Imagine I'm a talk show host, and my partner over here is a pop musician. What's one question I have for her? [...] Yes, you, right there, in the teal shirt!"
