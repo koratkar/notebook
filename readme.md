@@ -1,6 +1,22 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-08: against spurious sounding claims about things that vaguely correlate
+
+From a PsychToday article entitled "Beautiful People Really Are More Intelligent":
+
+> This mean difference implies a correlation coefficient of r = .381, which is reasonably large in any survey data.
+
+Do you know what an r = .381 looks like on a graph?
+
+![r values](https://i.stack.imgur.com/DzwTH.png)
+
+Does it warrant a claim like "beautiful people are more intelligent"? My focus isn't on the truth of the statement, it's on the wording. What you say affects how other people feel, and if you say things like "thinner people live happier lives, have a better relationship to their bosses, and find cat fur to be softer" to an aneorexic, I don't think that's going to go down very well, regardless of the veracity of the statements. It's so easy to get people to obssess over their intelligence, especially nerds. When that's the only thing about you that could give you status, you're going to think about it a lot. 
+
+I really can't guess whose going to be reading this. Most people aren't constantly thinking about their IQ, and whether it's enough SDs to the right. The people who are (myself included) can't easily unravel themselves from the ever-tightening death spiral, and tend not to be people who *should* be worrying about the implications of their IQ. Whatever self-worth means, everybody knows attractive people are treated differently, intelligent people are more capable, and immutable biological traits determine what the world looks like for you. Maybe you decide your *self-worth*, but you don't always decide your worth otherwise. Should we efface the concept of individual differences from the discourse? Let ourselves be happier rather than right? That never seems to go down well. 
+
+I argue for something else. Let's treat everyone with kindness, even though unconciously we will treat some people more kindly. Let's join together to weather the forever-winter of our shared suffering. No one can extricate from you the horror of being a conscious being, no matter your height, weight, looks, intelligence, or charisma. No one can stop you from being an anxious control freak – well if they could, I doubt you'd care. We exist, often with no viable opt-out, and we deal with that.
+
 2023-01-07: success is totally made up by the way
 
 Adults in guidance positions often talk about success as if it was embedded in the structure of the universe. It kind of isn't. It's made up, and different people have different definitions of it, and you can define it for yourself. You can just decide, right now, that you're successful. Maybe some traits will be good predictors of income or status in the future, so shrewd adults can reasonably say "you'll probably be successful by the current consensus social definition." That's fine, but when they start talking as if it's *destined* to happen or that it's *intrinsic* to you (different than saying you have indicative traits of success) or saying that "all successful people have a fire within" or repeating any other vague truism, issues arise. This universe is very chaotic and random. Predictive traits are just that. *Predictive*. You can intuit some things about causality, like things fall when you drop them, but after that, it's mostly narrative nonsense. Some of the smart people you know will become rigid conformists incapable of having an interesting thought. Some of the slackers will become nauseatingly successful. What's in your hands is how you appraise it all. Happiness, satisfaction, and the giddy inner peace we imagine successful people always feel are all reached through *internal* assessments. You can learn how to change these. Success is always available to you.
