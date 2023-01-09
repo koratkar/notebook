@@ -1,6 +1,14 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-08: walk through the walls
+
+There are some people who are endlessly fascinating. Behind their eyes and between their ears lies a generator of a world like no other. Usually these people are slightly autistic or schizoid or *off* in some way. The prerequisite isn’t their psychiatric classification, but their deviance in how they see things. Most people are handed by society an idea of how other people work, what to believe, what is meaningful, what is virtuous behavior, what they are, and, crucially, what to do. These people are often uninteresting, and mostly so when they’re intelligent. Modern suburban childhood is a very ludic terrarium for developing new white collar workers. The smarter someone is without weird traits, the more likely it is that they’ll overfit to this low-poly simulation of real life. And succeed they will, but see they will not. They’ll follow their innate priors about the world and human behavior, never questioning them – because they work – and they will only ever know things from one view point. If their instincts and innate priors do not guide them well, or if they fail to download social software, they divert more attention to the world around them. Without conditioning tinting their vision, they see things as they are, and come to drastically different conclusions about their environment. 
+
+I want to resist classifying this kind of person, because fitting into a category is precisely what they best fail at, but this is generally what I find makes someone *interesting*. 
+
+Surrounding you are walls. Holding your head is a clamp, stifling attempts to really see. The world you live in often lies to you. I think liberation is finding ways of repurposing the features of your environment for new functions, unintended by its designers – be they intelligent, nature, or social forces. See that the walls and clamp aren’t solid objects, but that they are entirely notional. Walk through them! Betray away your category, your unchosen identity. This is your world. It is an open world game much larger than the what the eye implies. Play it your way.
+
 2023-01-08: against spurious sounding claims about things that vaguely correlate
 
 From a PsychToday article entitled "Beautiful People Really Are More Intelligent":
