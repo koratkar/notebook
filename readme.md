@@ -1,7 +1,19 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
-2023-01-08: flat earthers
+2023-01-10: enhanced school
+
+We know that [running while high](http://theviewfromhell.blogspot.com/2012/01/enhanced-running.html) may improve the subjective experience. My thoughts as of late have been directed towards finding ways to enhance other activities. The positive super-stimulus problem. Imagine everything you need to do that you hate doing. Now, imagine you felt euphoric while doing them. Melting away into the most banal of tasks, living a life that looks no different than yours right now, but so pleasurable you almost want to suffer again. Perhaps this can be achieved through meditation or simple exercises, such as focusing only on the pleasant aspects of an experience. Those take effort, which is exactly the hurdle. 
+
+How may we do this for the most excrutiatingly boring of tasks: homework? Music makes it more manageable, but it does not unlock the hidden pleasures of reading the political science syllabus. Modafinil users say boring tasks suddenly become wholly absorbing on the drug, though it's not advisable to try. Alexey Guzey reports [working in a virtual office](https://guzey.com/co-working/) provides a measurable boost to his productivity. That may not be a superstimulus, but it sure is an improvement over slavishly plowing through tasks no human will ever need to do again. 
+
+[Join me in my Gather.Town office](https://app.gather.town/invite?token=ZTl-JF5hQ52Wy2XdGk7U) if you want to try it out with me. I'll be there whenever I'm working – on anything.
+
+2023-01-10: deepmind
+
+The [RETRO paper](https://www.deepmind.com/publications/improving-language-models-by-retrieving-from-trillions-of-tokens). Man, I *soooooo* want to work there...
+
+2023-01-09: flat earthers
 
 From Sam Kriss's [Neil deGrasse Tyson hit piece](https://samkriss.com/2016/03/14/neil-degrasse-tyson-pedantry-in-space/):
 
@@ -11,13 +23,13 @@ Often teachers will only show you a means of symbol manipulation with some defin
 
 Flat earthers challenge this paradigm. They only accept what they see with their own eyes. They are the last champions of the truth, the last brave souls willing to leave a paradise of pure abstraction and aribtrary facts tagged true by Smart People to enter the triple inferno of Not Knowing, Not Trusting, and Uncertainty. We may never know, and with this crippling fact we must continue! *Wir müssen wissen. Wir werden wissen.*
 
-2023-01-08: improv routine
+2023-01-09: improv routine
 
 "Now we are going to take suggestions from the audience. Imagine I'm a talk show host, and my partner over here is a pop musician. What's one question I have for her? [...] Yes, you, right there, in the teal shirt!"
 
 "Do you feel you have wasted your life in the entertainment industry, while you could have done something more useful for the world with your gifts?"
 
-2023-01-08: walk through the walls
+2023-01-09: walk through the walls
 
 There are some people who are endlessly fascinating. Behind their eyes and between their ears lies a generator of a world like no other. Usually these people are slightly autistic or schizoid or *off* in some way. The prerequisite isn’t their psychiatric classification, but their deviance in how they see things. Most people are handed by society an idea of how other people work, what to believe, what is meaningful, what is virtuous behavior, what they are, and, crucially, what to do. These people are often uninteresting, and mostly so when they’re intelligent. Modern suburban childhood is a very ludic terrarium for developing new white collar workers. The smarter someone is without weird traits, the more likely it is that they’ll overfit to this low-poly simulation of real life. And succeed they will, but see they will not. They’ll follow their innate priors about the world and human behavior, never questioning them – because they work – and they will only ever know things from one view point. If their instincts and innate priors do not guide them well, or if they fail to download social software, they divert more attention to the world around them. Without conditioning tinting their vision, they see things as they are, and come to drastically different conclusions about their environment. 
 
@@ -25,7 +37,7 @@ I want to resist classifying this kind of person, because fitting into a categor
 
 Surrounding you are walls. Holding your head is a clamp, stifling attempts to really see. The world you live in often lies to you. I think liberation is finding ways of repurposing the features of your environment for new functions, ones unintended by its designers – be they intelligent, nature, or social forces. See that the walls and clamp aren’t solid objects, but that they are entirely notional. Walk through them! Betray away your category, your unchosen identity. This is your world. It is an open world game much larger than the what the eye implies. Play it your way.
 
-2023-01-08: against spurious sounding claims about things that vaguely correlate
+2023-01-09: against spurious sounding claims about things that vaguely correlate
 
 From a PsychToday article entitled "Beautiful People Really Are More Intelligent":
 
