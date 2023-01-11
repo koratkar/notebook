@@ -1,6 +1,22 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-11: aaron swartz
+
+Aaron Swartz was a beacon of light. Read his blog, and you'll get to know him better than you know most of your friends. Encoded in bits is an afterimage of a person fearless to fight for the welfare of all other people. 
+
+> There is no justice in following unjust laws. It's time to come into the light and, in the grand tradition of civil disobedience, declare our opposition to this private theft of public culture.
+> 
+> We need to take information, wherever it is stored, make our copies and share them with the world. We need to take stuff that's out of copyright and add it to the archive. We need to buy secret databases and put them on the Web. We need to download scientific journals and upload them to file sharing networks. We need to fight for Guerilla Open Access.
+
+I think Sam Kriss's [eulogy of his closest friend](https://samkriss.com) aptly describes the kind of human you find through Aaron's blog:
+
+> There are some people in life that you meet, get on with, hang around with, and drift away from, left with a few objects and a few memories, to moulder or fade away. There are others who cause you to realise, years later, that you’re not at all the same person that you were when you first met them. Their friendship has changed the language you speak, the way you behave, the angle in which you jam yourself into the world. They created you, as much as your own parents did. Anna was that person for me. This might be why losing her feels like being blinded, or having the words seared out of my mouth.
+
+Becoming a person like this is the ultimate goal of life in a futureless world. Someone who lives for others, and in so doing, makes them something more. Someone who can't die, for they've left an imprint of their iridescent and unbelievably insane world model distributed across the thoughts of all those they've touched. The Heidi of the future has dark fantasies. When you can see today's world from an uncorrupted perspective, you're not always going to see virtue, and you're not going to imagine everything is a garden. Yet through that, if you remain unjaded, there's something worth protecting.
+
+I lied. The point of this notebook isn't cultural programming. It's immortality.
+
 2023-01-11: beacons of light
 
 In the absence of the antics of all other people providing a source of meaning or amusement or repository of interestingness, we can try generating our own social Schelling points. Today, you can be a beacon of light by totally devoting yourself to an aesthetic and finding the God in other people and celebrating that. More on this later.
