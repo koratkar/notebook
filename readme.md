@@ -1,6 +1,16 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-11: culture
+
+[The Last of the Monsters with Iron Teeth](https://carcinisation.com/2014/10/04/the-last-of-the-monsters-with-iron-teeth/):
+
+> The Western child today is mostly kept inside his own home, associating with other children only in highly structured, adult-supervised settings such as school and sports teams. It was not always so. Throughout history, bands of children gathered and roamed city streets and countrysides, forming their own societies each with its own customs, legal rules and procedures, parodies, politics, beliefs, and art. With their rhymes, songs, and symbols, they created and elaborated the meaning of their local landscape and culture, practicing for the adult work of the same nature. We are left with only remnants and echoes of a once-magnificent network of children’s cultures, capable of impressive feats of coordination.
+
+Let's begin anew! Let this notebook be the source of a new culture! Share it with your friends, goad them into organizing. We will fashion new memes, and rituals, and together form a new collective! This burden rests on you, the reader's, shoulders. What do you want the future to be like? Would you like to subject your own children to the plight of today's youth – our functional house arrest? Would you like to watch culture's corpse slowly decompose on the internet? Our pale blue screens as the last respite of human connection in our sparse suburbs? 
+
+I want to build something: software that runs on minds rather than computers. I want to be part of of something greater than my role as a node in a network of instant messages. I want to watch people realize the hole we've found ourselves in, and begin to lay foundation. I want us to awaken to our potential as minds and not as status-obsessed monkeys. 
+
 2023-01-11: communication
 
 > One day, deep within the forest, Agaso, then about 13 years of age, found himself with a rare good shot at a cuscus in a nearby tree. But he only had inferior arrows. Without the slightest comment or solicitation, the straightest, sharpest arrow of the group moved so swiftly and so stealthily straight into his hand, I could not see from whence it came.
