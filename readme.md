@@ -1,6 +1,16 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-11: communication
+
+> One day, deep within the forest, Agaso, then about 13 years of age, found himself with a rare good shot at a cuscus in a nearby tree. But he only had inferior arrows. Without the slightest comment or solicitation, the straightest, sharpest arrow of the group moved so swiftly and so stealthily straight into his hand, I could not see from whence it came.
+>
+> At that same moment, Karako, seeing that the shot would be improved by pulling on a twig to gently move an obstructing branch, was without a word already doing so, in perfect synchrony with Agaso’s drawing of the bow, i.e., just fast enough to fully clear Agaso’s aim by millimeters at the moment his bow was fully drawn, just slow enough not to spook the cuscus. Agaso, knowing this would be the case made no effort to lean to side for an unobstructed shot, or to even slightly shift his stance. Usumu similarly synchronized into the action stream, without even watching Agaso draw his bow, began moving up the tree a fraction of a second before the bowstring twanged.
+> 
+> E. Richard Sorenson, Preconquest Consciousness
+
+I attended a kind of useless workshop on communication yesterday. I am glad I attended it. We are so caught up in this cerebral, rational mode of interaction with the world and each other that it almost seems we have resorted to constructing frameworks for breathing. A certain form of coordination is in-built, perhaps only possible in states of consciousness most of us no longer experience. It is like we are blindfolded. Some people have noticed we can no longer see, and they think the solution is to gouge their own eyes out. 
+
 2023-01-11: aaron swartz
 
 Aaron Swartz was a beacon of light. Read his blog, and you'll get to know him better than you know most of your friends. Encoded in bits is an afterimage of a person fearless to fight for the welfare of all other people. 
