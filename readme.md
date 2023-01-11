@@ -1,6 +1,14 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-10: what should we do
+
+Time as a concept is quite strange. In the moment, it's flowing so effortlessly, even counter to your efforts to stop it. You exist, and that's terrifying beyond words. Across days, it's interrupted by sleep and by dreams – which can last varying ammounts of time in the same intervals. You aren't a continuous process, and the only meaningful connection to the last moment is a sense of identification with the memory. 
+
+This begets an important question: what is wasting time? Our motivational system calculates the best ways to fulfill our drives, and sometimes leaves us very unfulfilled beyond momentary satiation. It's using data we don't consciously have access to (eg blood sugar levels), and can cause us to act counter to our best interests. What do we have to feel bad for? What is this feeling of waste, of lost hours? There is merely memory and anticipation and in between is something that's really not that fixed. We live in a waterfall, a cascade of brown noise, and we can never hold on to the sound of one drop of water. We are puppeted by a blind idiot master program designed for savannas now long denuded of grass. How can we but dissasociate from the strings?
+
+What's left to be done? As long as we believe we are in the abyss between a harmonious past and a coordinated future, we can continue making progress. How long can you believe you're still vexed by the brilliant delusion? 
+
 2023-01-10: cultural programming at play
 
 Today in my inbox was this notebook's first reader email:
