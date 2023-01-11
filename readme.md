@@ -1,6 +1,19 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-10: cultural programming at play
+
+Today in my inbox was this notebook's first reader email:
+
+> Fix your blog you liberal swine! ! ! Weed legalization is terrible
+> yand yoy shoudl be thrown in jail for treason oagaisnt the great
+> coutnry of thr unitd states ofm america!!! Write about the greatness
+> of our countr or you will be silenced!!!!
+> 
+> Sent from my iPad
+
+This is truly the start of something great.
+
 2023-01-10: enhanced school
 
 We know that [running while high](http://theviewfromhell.blogspot.com/2012/01/enhanced-running.html) may improve the subjective experience. My thoughts as of late have been directed towards finding ways to enhance other activities. The positive super-stimulus problem. Imagine everything you need to do that you hate doing. Now, imagine you felt euphoric while doing them. Melting away into the most banal of tasks, living a life that looks no different than yours right now, but so pleasurable you almost want to suffer again. Perhaps this can be achieved through meditation or simple exercises, such as focusing only on the pleasant aspects of an experience. Those take effort, which is exactly the hurdle. 
