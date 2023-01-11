@@ -1,6 +1,22 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-11: Tom Swifty 1/n
+
+"I continue to believe the highest calling of man is finding novel and humorous exploitations in language." Tom puntificated.
+
+ChatGPT wields as of today paltry powers of perversing language into new and exciting forms. When Tom Swifties are automated, alignment will be a lost cause.
+
+2023-01-11: time again
+
+Sarah Perry writes:
+
+> Coordinated punctuality comes at the cost of each person living most of his hours aware of the wider world’s standard time, which is a novel way of being human.
+
+Today's experience of time, and of wasting time, are both novel. Wasting time is a constructed phenomena – the feeling comes from a loss of opportunity for status or something akin – and we tie it to time.
+
+4,000 weeks makes this point in more fluid prose, but I only half-heartedly flipped through the first few pages and stopped reading when the author said he wasn't time-enlightened yet.
+
 2023-01-10: what should we do
 
 Time as a concept is quite strange. In the moment, it's flowing so effortlessly, even counter to your efforts to stop it. You exist, and that's terrifying beyond words. Across days, it's interrupted by sleep and by dreams – which can last varying ammounts of time in the same intervals. You aren't a continuous process, and the only meaningful connection to the last moment is a sense of identification with the memory. 
