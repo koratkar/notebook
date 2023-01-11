@@ -1,6 +1,17 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-11: beacons of light
+
+In the absence of the antics of all other people providing a source of meaning or amusement or repository of interestingness, we can try generating our own social Schelling points. Today, you can be a beacon of light by totally devoting yourself to an aesthetic and finding the God in other people and celebrating that. More on this later.
+
+2023-01-11: destigmatizing pleasure
+
+Most people are totally fungible and live their lives hypnotized by social Schelling points of purpose. More so today fewer people are falling for meaningness. All that you can do is make yourself happy. Who still feels like part of a greater collective? Does anyone still respect the collective mind that exists? It acts with no regards to the future.
+
+Narcissism is thinking it's all about you. It now feels like the thing it's all supposed to be about has been abandoned.
+
+
 2023-01-11: Stan
 
 > My tea's gone cold, I'm wondering why I
