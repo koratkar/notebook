@@ -1,6 +1,19 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-11: Stan
+
+> My tea's gone cold, I'm wondering why I
+> Got out of bed at all
+> The morning rain clouds up my window (window)
+> And I can't see at all
+> And even if I could it'll all be gray
+> But your picture on my wall
+> It reminds me, that it's not so bad
+> It's not so bad
+
+I maintain that my interest in certain people comes from their value as world models with faces, and too that it is an aspect of my autistic obsession with understanding exactly what the fuck is going on (in all senses), not at all a desire to know about their personal lives or interact with them. I feel I was handed a disjointed understanding of the world and its relation to the self at birth, and have always had a need to know more about it. Some people disagree with their government, I disagree with the universe.
+
 2023-01-11: Tom Swifty 1/n
 
 "I continue to believe the highest calling of man is finding novel and humorous exploitations in language." Tom puntificated.
