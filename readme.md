@@ -1,6 +1,12 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-11: life is but a dream
+
+I remember when I first heard those lyrics. I was four years old, sitting on the top floor of a double decker bus. My mom had given me her early generation iPhone to play a simple, brightly colored game. The air was humid. Someone, I can't remember who, was either singing the song or playing it on an old mp3 player. 
+
+This world is constructed by your mind. It is not continuous. You will go to sleep, jumbling up the world generator momentarily. Soon, this moment will become a foggy memory, only a background fact in your story.
+
 2023-01-11: culture
 
 [The Last of the Monsters with Iron Teeth](https://carcinisation.com/2014/10/04/the-last-of-the-monsters-with-iron-teeth/):
