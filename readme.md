@@ -1,6 +1,10 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-12: why i'm not an antinatalist
+
+While I agree with some very heretical arguments about the value of life and ideal availability of suicide, I don't endorse antinatalism. The reason is that if, say, such a philosophy was to become massively popular, it would first become popular with smarter and ethically concerned people. Most people do not employ so much overhead thought to their decisions. They will not be convinced to rebel against their natural impulses. Now imagine if all the smart and ethically concerned people exited the gene pool. This is not a great argument against antinatalism, nor do I think it is a steelman against what antinatalist proponents say. If you have good genes, you should replicate. We need you.
+
 2023-01-11: life is but a dream
 
 I remember when I first heard those lyrics. I was four years old, sitting on the top floor of a double decker bus. My mom had given me her early generation iPhone to play a simple, brightly colored game. The air was humid. Someone, I can't remember who, was either singing the song or playing it on an old mp3 player. 
