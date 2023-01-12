@@ -1,6 +1,14 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-12: what do you want to know
+
+Robin Hanson's overcoming bias bio: 
+
+> In ’77 I began college (UCI) in engineering, but switched to physics to really understand the equations.  Two years in, when physics repeated the same concepts with more math,  I studied physics on my own, skipping the homework but acing the exams.
+
+Coincidentally the same thing all the smart people I know do. 
+
 2023-01-12: why i'm not an antinatalist
 
 While I agree with some very heretical arguments about the value of life and ideal availability of suicide, I don't endorse antinatalism. The reason is that if, say, such a philosophy was to become massively popular, it would first become popular with smarter and ethically concerned people. Most people do not employ so much overhead thought to their decisions. They will not be convinced to rebel against their natural impulses. Now imagine if all the smart and ethically concerned people exited the gene pool. This is not a great argument against antinatalism, nor do I think it is a steelman against what antinatalist proponents say. If you have good genes, you should replicate. We need you.
