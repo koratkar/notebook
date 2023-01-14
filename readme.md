@@ -1,6 +1,21 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-14: problems worth fighting for
+
+I said in the previous log entry that extinction is ethical. Sadly, for most humans, we will continue to exist. While that remains true true, there are some problems we have to attend to for the good of all of those who are still alive. 
+
+- Infrastructure for potential solar flare disasters
+- Cheaper MRIs
+- Low IQ / Intellectual disability 
+- Open access
+- Cheap and quality training in tough subjects (ramanujan was able to read textbooks on his own and absorb all of mathematics – at the age of 12. the rest of us will need tutoring)
+- Nutritional cures to depression (sarah perry reports amelioration of all her mental illnesses after quiting carbs – is such a thing possible for more people? could we make Bryan Johnson's project blueprint available for all?)
+- Social acceptance and adoption of synthetic meat, milk, and eggs over organic alternatives (farmed animals have terrible lives)
+- Making everyone's life worth living so we don't have to root for the asteroid
+
+There are more problems, but the last one is the most important to me. Is it even possible for life to be worth living? It's what we'll have to fight for...with everything we've got. The time has come for action, for rebellion against our condition. 
+
 2023-01-14: worth living
 
 Most people spend most of their time suffering. If we could make the majority of that time, or even prolonged portions of the day, extremely pleasurable, that would be the greatest good we could do. Dissolve away the suffering masses into bliss...wireheading is the endgame for most people. They would forego reproduction, reducing potential suffering further. Is extinction the ethical opt-out?
