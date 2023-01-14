@@ -1,6 +1,12 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-14: worth living
+
+Most people spend most of their time suffering. If we could make the majority of that time, or even prolonged portions of the day, extremely pleasurable, that would be the greatest good we could do. Dissolve away the suffering masses into bliss...wireheading is the endgame for most people. They would forego reproduction, reducing potential suffering further. Is extinction the ethical opt-out?
+
+I don't know. I think that people are worth fighting for, worth continuing for. 
+
 2023-01-12: what do you want to know
 
 Robin Hanson's overcoming bias bio: 
