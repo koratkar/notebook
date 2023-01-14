@@ -1,6 +1,10 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-14: centers
+
+And then I saw it, right before my eyes, inside my heart, the truth; its message reverberating through my every bone and cell. At the lowest level, I was a structure made possible by a kind of energy transfer that required complicated machinery to run. In every microcosom that ran this program, there lied an instruction set – the same one. At the levels above that I was organs and tissue, all following a program laid out by that original design. In that specification was a management software that could handle complex ambiguity and novel stimuli on a time scale faster than the low level machinery itself could account for. A side effect of this program was awareness of *being* a program. Reality, the force modifying symbols on the grandest tape of all, kept on moving, supplying this program with the state transformations it needed to produce this awareness. 
+
 2023-01-14: problems worth fighting for
 
 I said in the previous log entry that extinction is ethical. Sadly, for most humans, we will continue to exist. While that remains true true, there are some problems we have to attend to for the good of all of those who are still alive. 
