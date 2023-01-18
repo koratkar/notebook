@@ -1,6 +1,17 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-18: batman
+
+The boyhood fantasy of the future being a road to a strong, trained, and archetypal self – samurai, firefighter, astronaut – suddenly seems empty. This notion can still be held, but what then is behind it? In an entropic universe, Batman is a fool, struggling to preserve a corrupted city doomed regardless of the extent of his service to it. Gotham itself is a nebulous entity, as clearly defined as a lake or an ocean. Old residents will move out, while new ones move in, and everyone in its borders is certain to die. Its government will collapse, and it will decay like every city that came before it. His work, and all of ours, amounts to protecting a sand castle from the tide.
+
+People shrivel at the thought that they suffer for reasons other than their stated altruistic motivations. People shrivel at the thought that most people are miserable most of the time, and they refuse to accept it. Have you been to Chili's at 7:00pm on a Friday? Have you gazed upon disconsolate face of your waitress as you place your order for ice water, shaken not stirred? Does it occur to you that most people live at a level of degredation even lower than hers? It is obvious Batman is a child of privillege – when he acts on Gotham's behalf to avert its countless painless death sentences. The mob can only exist because something tempts people to buy their drugs. Every villain can rightly laugh at Bruce Wayne, trying to flush every niche of its vermin so something worse can come and fill it. 
+
+Realizing this only makes the yearning to fearlessly serve a high ordeal stronger. I think meaning is like an air guitar. It is real for the moments when you are strumming it, giving emptiness a shape, implying the existence of the transcendental, but once the music stops, you notice your hands are empty. Sam Harris is a charlatan and a pedant, intent on drying life of its magic with no replacement potion in hand. Except a subscription-based meditation app and a podcast and magic mushrooms.
+
+Some people say the search for meaning is what they find meaningful. Yet meaning is no more than a concept, and once you realize there is nothing outside of that, it all goes silent. I think they killed God, and gave us Sam Harris as a replacement bridgehead to the realms beyond, and this has turned out to be a really bad idea.
+
+
 2023-01-14: centers
 
 And then I saw it, right before my eyes, inside my heart, the truth; its message reverberating through my every bone and cell. At the lowest level, I was a structure made possible by a kind of energy transfer that required complicated machinery to run. In every microcosom that ran this program, there lied an instruction set – the same one. At the levels above that I was organs and tissue, all following a program laid out by that original design. In that specification was a management software that could handle complex ambiguity and novel stimuli on a time scale faster than the low level machinery itself could account for. A side effect of this program was awareness of *being* a program. Reality, the force modifying symbols on the grandest tape of all, kept on moving, supplying this program with the state transformations it needed to produce this awareness. 
