@@ -1,6 +1,10 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-19: Do they know what they're talking about?
+
+In cross country, I doubt the coaches are as scientifically versed as we should expect them to be. It is worth doing our own research, and testing out our conclusions on ourselves before we take their advice. Sports medicine, I assume, is prfobably in as bad a state as psychology or nutritional science. It would be best to look at what tribal runners do, not modern athletes (who have short careers and must survive a filter to become famous. Big selection bias!). We spend 0.5 miles warming up for 5 mile runs, while the Tarahumara don't warm up at all for several hundred mile runs. Is stretching some kind of cargo cult practice too? (Yes, I acknowledge a *tribe* of runners is under genetic selection pressures for traits that let them do that, but humans have been running much, *much* longer than we've had those shoes with aerodymanic laces and super rubber that actually *increase* your propensity for injury...).
+
 2023-01-18: batman
 
 The boyhood fantasy of the future being a road to a strong, trained, and archetypal self – samurai, firefighter, astronaut – suddenly seems empty. This notion can still be held, but what then is behind it? In an entropic universe, Batman is a fool, struggling to preserve a corrupted city doomed regardless of the extent of his service to it. Gotham itself is a nebulous entity, as clearly defined as a lake or an ocean. Old residents will move out, while new ones move in, and everyone in its borders is certain to die. Its government will collapse, and it will decay like every city that came before it. His work, and all of ours, amounts to protecting a sand castle from the tide.
