@@ -1,6 +1,27 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-01-24: uninstalling the zero-sum game
+
+So I live my life like it's a zero-sum game. I don't read books anymore (well, books about anything other than christopher nolan) since my reading speed is too slow. I get supremely frustrated at my self when I'm bad at something, which is a pretty good way to stay bad at everything (except things I do compulsively?). I suppose my subconcious evaluation is that everything culminates in status, which is a pretty miserable outlook. It's a little bit scary to truly accept that you are so unspecial (we, I think, are built to believe we are at least a little bit special, useful to the tribe in some way others aren't, but this isn't true of everyone, especially with 8 billion people), and perhaps you will do nothing very useful. But I believe that following these thoughts will lead to some kind of positive-sum enlightenment (again, the rewriting of subconscious evaluations), in which I begin to do useful things. Perhaps its all CBT (did you know CBT has an effect size of like 0.5? higher than most medications!), and it is all conscious processes that I have to work with, but conscious processes come from somewhere unconscious too. 
+
+But then...I think I'm too late. The AGI is coming, and soon. From LessWrong:
+
+> Though the world looks scarier now than when I wrote this, to those of high ability I would still say this:  we are very close to a point where your genius will not be remarkable, where one can squeeze thoughts more beautiful and clear than you have any hope to achieve from a GPU. If there was ever a time to work on the actually important problems, it is surely now.  
+
+Some may look at ChatGPT's current inadequacies, it's surprising idiocy, and comment it's nowhere close, but that is to fail to recognize progress. "Oh, it only gets a D on this college level Econ exam it had zero minutes to study for, it's not that great!" No, it's not that great. But many existing GPT models are far greater, and they will only get better...And if you play with it for a while, you can often get it to overcome its flubs. 
+
+But what then? In a world where AI will devour your skills, where it overtakes our Tom Swifties slowly and completely, where all of us combined can no longer do anything special? I think Tom Swifties are the point. I resolve to write 10,000 Tom Swifites this year. I hope to become dazzalingly good at them by 2024. 
+
+2023-01-24: hate mail
+
+> Yo loser! 
+> Your latest article is DUMB, the tar humans don’t warmup because they warm up during their hundred mile runs!!! We have to warm up for a five miler because we don’t have as much time to warm up on the run! Also if the tar humans are so good, then why do the east africans have all the records?? You obviously didnt do your research and I think you should take down your website and never touch a keyboard again!!!
+> 
+> Sent from my iPad
+
+*citing severe emotional injury, this was the last notebook entry Ishaan ever wrote.*
+
 2023-01-19: Do they know what they're talking about?
 
 In cross country, I doubt the coaches are as scientifically versed as we should expect them to be. It is worth doing our own research, and testing out our conclusions on ourselves before we take their advice. Sports medicine, I assume, is prfobably in as bad a state as psychology or nutritional science. It would be best to look at what tribal runners do, not modern athletes (who have short careers and must survive a filter to become famous. Big selection bias!). We spend 0.5 miles warming up for 5 mile runs, while the Tarahumara don't warm up at all for several hundred mile runs. Is stretching some kind of cargo cult practice too? (Yes, I acknowledge a *tribe* of runners is under genetic selection pressures for traits that let them do that, but humans have been running much, *much* longer than we've had those shoes with aerodymanic laces and super rubber that actually *increase* your propensity for injury...).
