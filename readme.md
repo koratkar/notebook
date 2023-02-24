@@ -1,6 +1,24 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-02-24: punching drywall
+
+> You've constructed a reality, a narrative that guides you through life. It's the framework upon which you hang every event, every experience, every decision. But then something happens, something that shakes the very foundations of that narrative. The plot twists, the characters become unrecognizable, the ending you envisioned is snatched away.
+> 
+> You're left with a feeling of disorientation, a sense of vertigo. It's like stumbling in the dark, your hand reaching out for the familiar, the stable, the known, but finding only emptiness. It's like standing on a cliff, staring down into the abyss, with nothing to cling to, nothing to hold you steady.
+> 
+> You try to make sense of it, to reassemble the fragments, to rebuild the narrative. But it's like trying to assemble a puzzle with missing pieces, or to read a book with half the pages torn out. You're left with gaps, inconsistencies, contradictions. The story you once knew is now a foreign language, incomprehensible, indecipherable.
+> 
+> You feel lost, adrift, without a compass, without a map, without a destination. You're floating in a sea of uncertainty, tossed by the waves, buffeted by the wind. You're a leaf in a hurricane, a twig in a torrent, a feather in a storm.
+> 
+> And yet, there's a strange sense of liberation, of freedom, in this chaos. You're no longer bound by the constraints of the old narrative, no longer limited by the expectations, the assumptions, the prejudices. You're free to explore, to experiment, to create. You're a blank canvas, a fresh sheet of paper, a new beginning.
+> 
+> But first, you must embrace the uncertainty, the discomfort, the fear. You must accept that the narrative you once held so dear is gone, and that something new, something different, something unknown, must take its place. You must be willing to let go, to surrender, to start over.
+> 
+> It's like punching drywall, over and over again, until there's nothing left but rubble and dust. And then, from the ashes, from the ruins, from the chaos, something new can emerge. Something beautiful, something strange, something entirely unexpected.
+
+Holy fuck the agi is so close.
+
 2023-01-24: uninstalling the zero-sum game
 
 So I live my life like it's a zero-sum game. I don't read books anymore (well, books about anything other than christopher nolan) since my reading speed is too slow. I get supremely frustrated at my self when I'm bad at something, which is a pretty good way to stay bad at everything (except things I do compulsively?). I suppose my subconcious evaluation is that everything culminates in status, which is a pretty miserable outlook. It's a little bit scary to truly accept that you are so unspecial (we, I think, are built to believe we are at least a little bit special, useful to the tribe in some way others aren't, but this isn't true of everyone, especially with 8 billion people), and perhaps you will do nothing very useful. But I believe that following these thoughts will lead to some kind of positive-sum enlightenment (again, the rewriting of subconscious evaluations), in which I begin to do useful things. Perhaps its all CBT (did you know CBT has an effect size of like 0.5? higher than most medications!), and it is all conscious processes that I have to work with, but conscious processes come from somewhere unconscious too. 
