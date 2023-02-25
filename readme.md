@@ -1,6 +1,28 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-02-25: joscha bach quora answer
+
+> When you are clinically depressed, your brain cannot create imaginations of a better future. This does not mean that the future holds no happiness, but it means that it is normal that you cannot believe in that right now. Please stop listening to your brain, it is stupid.
+> 
+> How you feel in every moment is not a result of how valuable you are. (Everybody is a center of a complete universe, and a complete mirror of existence. Everything that exists for you is the creation of your mind. That is pretty amazing. Whatever you imagine is something your brain has built, and you could contribute it to the world of others.) Your feelings are the expression of the current neurotransmitter configuration. Of course, your brain sends these signals to itself as a reaction to how well your brain thinks you are doing in the world. But what it reacts to is not some truth outside of you. It reacts to successes and experiences: every little success and every bit of joyful experience that you manage to give to yourself counts.
+> 
+> Do you have things you might like? For instance, did you enjoy dancing, making presents, playing music, taking lonely walks at the beach at some point in your life? Even if they do not look promising now, put happy things into your calendar, and do them. Also, spend a few moments every minute to look around you and see if you can find a thing you like.
+> 
+> Most of our unhappiness is the result of stories that our brain tells itself. Sad tales about the past, anxious tales about possible futures. Stop listening. It is like a bad radio program. Some people have very good experience with meditation, to learn shutting the stupid radio off and waking up the the beautiful quiet around them, instead of living in a scratchy horror story. The present, right here and now, is usually quite pleasant! And if not, where is a nice cosy blanket, a good book and a cup of tea?
+> 
+> During bad periods, you can try living in "day-tight compartments". Every day is a capsule, and your mind is not allowed to reach into the next. Tomorrow will take care of itself, tomorrows possible pain and sadness does not exist. Yesterday is gone and completely out of reach, it cannot hurt you. It is sufficient if you solve today's problems. Make it a good day. You only need to take care of the things that are due until midnight.
+> 
+> Of course you should urgently go and see a therapist, especially since you are possibly at risk for suicide. A therapist is not an indication that you failed, but a gym coach or physiotherapist for your mind. If you do not have the mental muscles any more to pull yourself upright, and everything hurts, a therapist can help you get moving again. She might also consider prescriptions to push your neurotransmitters out of the current valley.
+> 
+> Once you manage to feel some joy again, you might find your appetite for life. It is totally ok to be a 29 year old obese unemployed woman. When I was in a cancer ward with a bad prognosis, I felt that I would totally take that body and life, and experience the universe some more. Why should that not be a happy body to hop around in? I did not have command of my legs any more, and was so envious of the people that could go outside to feed the ducks...
+> 
+> If you get back in charge of what you feel and what you give attention to, you can also start to decide who you want to be, and what you want to do. If you decide, and not your impulses, you can decide what your body looks like (which totally depends on what you eat, which in turn usually depends on how much sugar drives your appetite), and what you do with your day, and how your relationships unfold.
+> 
+> Oh, and you can always kill yourself later, if life becomes truly unbearable. This door is there, it does not go away any time soon. And if you are willing to go anyway, why not instead do the thing that you always wanted but never dared, try what you were not allowed and not entitled to, and see what happens?
+> 
+> I wish you all the best on your way.
+
 2023-02-24: punching drywall
 
 > You've constructed a reality, a narrative that guides you through life. It's the framework upon which you hang every event, every experience, every decision. But then something happens, something that shakes the very foundations of that narrative. The plot twists, the characters become unrecognizable, the ending you envisioned is snatched away.
