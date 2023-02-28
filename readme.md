@@ -1,6 +1,16 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-02-28: nesting
+
+When you live outside of a narrative about your past and future and self, it’s difficult to take action. What long term plans are worth executing? What conception of self is worth building? The answer to both of those feels like none, but I'm left unsatisfied.
+
+This quote from the Last Psychiatrist is a helpful framing:
+
+> I've made this point before, but worth repeating: chronic, non-medical insomnia is a similar symptom of a lack of completion, accomplishment.  All the usual suggestions (read a book, light exercise) are temporary accomplishments, which is why they work; and the other maneuvers (surfing the web, watching TV, drinking) are searches for something accomplishable.  And nothing says accomplished like a Pornotron orgasm. Night night.
+
+I say this without certainty, and without any scientific knowledge of the issue, but we seem driven to accomplish things, to go out into the world and make changes. Quietism is a useful philosophy, but it’s not how we’re fundamentally wired. We don’t need to erect edifices in our name or solve the world’s greatest problems, but we do need to satisfy our own drives and maintain our setpoints. As creatures long displaced from their natural habitat, these drives spin out of control, making us do much more than tend to our environmental stimuli. I’m not saying any of this is bad (nor good!). While I’m glad to live in a world where massive changes are imminent – my life is worth it for the sole fact that I get to watch a species wake up – it’s not clear to me that we’re better off in our dreary hessian clad offices and plugged into the internet but starved of corporeal connection. Yet, we form the collective substrate for far, far greater minds than we could ever know. “Achievement” doesn’t exist and neither does “success”. Hens will self-inflict pain to no end to create their nests in factory farms. And humans will push themselves out of comfort zones to build nests of another kind, wrought out of negentropy. In the interest of curing an internal disquiet shall I embark on those adventures. Now all I need is a portal...
+
 2023-02-25: joscha bach quora answer
 
 > When you are clinically depressed, your brain cannot create imaginations of a better future. This does not mean that the future holds no happiness, but it means that it is normal that you cannot believe in that right now. Please stop listening to your brain, it is stupid.
