@@ -1,6 +1,17 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-02-28: assymetry
+
+|                                   | P(Doom) is extremely high | P(Doom) is extremely low |
+|-----------------------------------|---------------------------|--------------------------|
+| Act on long term incentives       | Hedonic cost (somewhat bad)            | Reap long term rewards (really good)  |   
+| Don't act on long term incentives | Free hedonic energy (somewhat good)              | Suffer long term consequences (really bad)    |   
+
+I'm working on this assymetry about how it's a good idea to act on your long term incentives in the case that you have a high, but not nearly certain, prior that the world is doomed in the short term. Your long term incentives do of course include averting doom in all cases! But they also include, like, paying your taxes and doing dumb stuff you don't want to do. Similar framing to Benatar's Assymetry. (really good - somewhat bad) > (somewhat good - really bad).
+
+
+
 2023-02-28: nesting
 
 When you live outside of a narrative about your past and future and self, it’s difficult to take action. What long term plans are worth executing? What conception of self is worth building? The answer to both of those feels like none, but I'm left unsatisfied.
