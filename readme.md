@@ -1,6 +1,10 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-03-03: hate group
+
+If someone wanted to call my race a hate group, I would be cool with that conditional on them using more than one statistic and employing good epistemic practices. Please don’t signal boost poorly researched takes without making it clear what the problem is.
+
 2023-03-03: fuck you, yes you 
 
 Then the LORD spoke to Job out of the storm. He said:
