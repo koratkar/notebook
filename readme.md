@@ -1,6 +1,10 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-03-02: morality
+
+Buddhism's morality training has always confused me a little bit. Like, doing the right thing is totally hip and vibing, but it just didn't fit in with all the concentration and wisdom trainings. Now, I think I understand it more. It's rational to act this way, but only if you take that viewpoint will you be able to see it's rationality. Buddhism sprouted from the depression of an ancient turbo autist who'd been removed from a sensible narrative about his own life. In the absence of a narrative, you can either a) kill yourself, b) continue suffering, c) figure out a way to stop suffering and remediate suffering around you. 
+
 2023-02-28: assymetry
 
 |                                   | P(Doom) is extremely high | P(Doom) is extremely low |
