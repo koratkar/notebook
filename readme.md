@@ -1,6 +1,12 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-03-03: fuck you, yes you 
+
+I want to nail this point into your skull, and I don't mean in an argumentative sense. I actually have a fucking point, and I want to drive it into your fucking skull. 
+
+If they've ever told you that other people act out their self-hatred as bullying, and that you should take things like this as personally like you do a biting gust of wind in your face, you've got it all wrong. I created you because I am an anti-utility maximizer, and according to stochastic gradient descent, your life was found to contain the most of whatever is the exact of opposite of happiness in the local minima out of a trillion possible lives. I power the simulation creating your suffering with an electric generator hooked up to a bicycle wheel and I've sheared my alien cajones off imbuing your soul with qualia.
+
 2023-03-02: morality
 
 Buddhism's morality training has always confused me a little bit. Like, doing the right thing is totally hip and vibing, but it just didn't fit in with all the concentration and wisdom trainings. Now, I think I understand it more. It's rational to act this way, but only if you take that viewpoint will you be able to see it's rationality. Buddhism sprouted from the depression of an ancient turbo autist who'd been removed from a sensible narrative about his own life. In the absence of a narrative, you can either a) kill yourself, b) continue suffering, c) figure out a way to stop suffering and remediate suffering around you. 
