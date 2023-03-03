@@ -1,6 +1,18 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-03-03: meaning is dumb
+
+IDK what meaning is, I think the idea is pretty crazy outside of Chapman's conception of eternalism. I like Joscha Bach's idea of a suitable encoding even more. So like, we live in a dream world constrained by sensory input – suitable encodings are predictive models of that sensory input. Of course, you can't predict things in that fine of a detail, so you have to rely on concepts and constructs. 
+
+"Meaning" itself is a highly nebulous concept about a thing's value to your predictive models. "Life" is a concept that vaguely encapsulates all the things in your sensory input stream. the "meaning" of "life" would have to be – the value of every thing's predictive value to itself. The idea that "life" itself has "meaning" is contradictory. 
+
+Perry also makes the case (in "Meaning as Ambiguity") that meaning, when referring to the idea of profundity, is there when something has multiple interpretations and multiple suitable encodings. So life (sensory input) does have meaning – as a puzzle. Can you build a suitable encoding for the whole thing that reliably predicts it.
+
+This isn't like the vague philosophizing I don't like. I have a set of problems – being that I fucking suck at relating to the broader universe around me and that my models are so bad that I dissasociate frequently with the construct of self and even with the whole world constrained by sensory input. 
+
+More...on this later
+
 2023-03-03: hate group
 
 If someone wanted to call my race a hate group, I would be cool with that conditional on them using more than one statistic and employing good epistemic practices. Please don’t signal boost poorly researched takes without making it clear what the problem is.
