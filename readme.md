@@ -1,13 +1,21 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-03-04: no one's ontologically better
+
+No one is ontologically better than anyone else, only in the context of a framework is that ever the case.
+
+2023-03-04: I think I'm better than non-autists, normies, average-intelligence people, but not actually retarded people, those folks are okay.
+
+No comment.
+
 2023-03-04: despite my suitable encoding about these issues, I still feel fucked over
 
 The universe doesn't follow any *narrative* causal logic. You can do everything right and still fail and there will be no "meaning" to your failure. Life's unfair – because life is powered by a blind idiot breathing sentience randomly into inert matter.
 
 But according to an invasive narrative lodged into my thoughts, I should be a genius and also better than everyone. I've paid too much, and there should be some kind of ROI on your suffering. 
 
-It's not that I'm hurt by being different than everyone and having almost no one who I feel thinks the way I do. That's fine. It's not that I'm hurt by my psychology acting on all the wrong impulses to get people to like me. It's not that I'm hurt by being seen as an inhuman freak by most everyone else. Why would that bother me – or anyone, for that matter? It's just that I feel if you have to be as autistic as Scott Aaronson – if you have to be locked out of everyone's in-group – you deserve to be as smart and talented in return, and that's not the case for me.
+It's not that I'm hurt by being different than everyone and having almost no one who I feel thinks the way I do. That's fine. It's not that I'm hurt by my psychology acting on all the wrong impulses to get people to like me. It's not that I'm hurt by being seen as an inhuman freak by most everyone else. Why would that bother me – or anyone, for that matter? Those things are only problems if you feel cheated out of social acceptance in the first place. It's just that I feel if you have to be as autistic as Scott Aaronson – if you have to be locked out of everyone's in-group – you deserve to be as smart and talented in return, and that's not the case for me.
 
 2023-03-03: meaning is dumb
 
