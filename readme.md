@@ -1,6 +1,12 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-03-09: train
+
+So I get on a train, and an attractive yuppie woman sits down several feet away. Then, a less attractive man gets on a knights move away, and gives her a smile which was totally infused with libidinous craving. Of course, I start laughing really hard and look away. I look back a few moments later, and see the guy gazing not exactly lecherously (but let's just say he was using his eyes for other reasons than to appropriate a model of his surroundings) at her, and start laughing again, but this time he notices me. Unable to control my impulses, I keep laughing.
+
+When has anyone in history picked up a woman like that *on a train*? 
+
 2023-03-09: smart sperm banks
 
 Proposal: subtractive eugenics is unpopular, so let's just create a sperm bank where we only take the sperm of bona fide geniuses and let only really smart women get pregnant with them. Second part is important since not everyone is equipped to raise extremely smart children.
