@@ -1,6 +1,10 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-03-09: smart sperm banks
+
+Proposal: subtractive eugenics is unpopular, so let's just create a sperm bank where we only take the sperm of bona fide geniuses and let only really smart women get pregnant with them. Second part is important since not everyone is equipped to raise extremely smart children.
+
 2023-03-04: no one's ontologically better
 
 No one is ontologically better than anyone else, only in the context of a framework is that ever the case.
