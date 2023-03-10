@@ -1,11 +1,9 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
-2023-03-10: nihilism short response
+2023-03-10: nihilism short essay
 
-Not a short story. Rather, an essay:
-
-**Positive responses to nihilism **
+**Positive responses to nihilism**
 
 In this short essay, I refer to many facets of nihilism. Nihilism does not necessarily mean an absence of caring – it can also mean an absence of long-term narrative about the self.  It is colloquially seen as a terrible, terrible thing - a damaged neural circuit drawing is towards hedonism, a depressive fog in cognition, a system of thought antithetical to rationality. I believe nihilism (in the sense of denying the universe follows a narrative causal logic) is a rational response to the quandary of being alive.
 
