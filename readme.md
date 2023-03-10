@@ -1,6 +1,30 @@
 # Ishaan's Notebook
 ## email me at ishaan [at] koratkar [dot] com. Don't be afraid to reach out!
 
+2023-03-10: nihilism short response
+
+Not a short story. Rather, an essay:
+
+**Positive responses to nihilism **
+
+In this short essay, I refer to many facets of nihilism. Nihilism does not necessarily mean an absence of caring – it can also mean an absence of long-term narrative about the self.  It is colloquially seen as a terrible, terrible thing - a damaged neural circuit drawing is towards hedonism, a depressive fog in cognition, a system of thought antithetical to rationality. I believe nihilism (in the sense of denying the universe follows a narrative causal logic) is a rational response to the quandary of being alive.
+
+*Growth is as meaningless as destruction*
+
+The first positive response to nihilism is to do things conducive to self-growth rather than self-destruction because it doesn’t matter anyway. The viewpoint is usually used to justify following our worst impulses, but it is just as satisfactory a reason to follow our best. The drive to experience pleasure is a great one to follow locally.
+
+*Kill your self*
+
+The second positive response to nihilism is to kill your self. There are many non-suicidal ways of doing this. The method proscribed here is to transfer all of your agency into a system, hopefully one that helps you achieve desired states (happiness, bliss, or the absence of suffering caused inadvertently by following our worst impulses). This is compatible with not having a narrative about the self, and puts minimal energy on self-definition. Nothing matters, so decision making as if things do is a drag. 
+
+Systems in the purview of this response include Buddhism (which includes a separate method of killing the self) and health automation routines. 
+
+This can be undercut by actual depression or anger at the blind idiot deities who cursed you with qualia. Blighting your own emotions is recommended.
+
+*Negative utilitarianism*
+
+Suffering is the worst possible state for conscious beings to be in, and they are all in it most of the time anyway. Reducing suffering does not require believing in universal meaningness. It simply requires acknowledging that we can be beholden to pain signals we cannot change, and that we can reduce the amount of this occurring. The reductio ad absurdum of negative utilitarianism is a preference for ending all life, but this conclusion only appears to be an error in logic because of (obvious) cultural conditioning. However, other deontologies may prove more useful for an individual (neutral states are worse than pleasurable ones for an individual).
+
 2023-03-09: train
 
 So I get on a train, and an attractive yuppie woman sits down several feet away. Then, a less attractive man gets on a knights move away, and gives her a smile which was totally infused with libidinous craving. Of course, I start laughing really hard and look away. I look back a few moments later, and see the guy gazing not exactly lecherously (but let's just say he was using his eyes for other reasons than to appropriate a model of his surroundings) at her, and start laughing again, but this time he notices me. Unable to control my impulses, I keep laughing.
